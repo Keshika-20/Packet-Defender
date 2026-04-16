@@ -8,8 +8,8 @@
 
 ## 👩‍💻 Team
 
-* **Keshika N M** (24PW20)
-* **Dhakshitha S** (24PW12)
+* **Keshika N M** 
+* **Dhakshitha S** 
 
 ---
 
