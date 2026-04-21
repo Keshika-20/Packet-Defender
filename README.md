@@ -9,7 +9,7 @@
 ## 👩‍💻 Team
 
 * **Keshika N M** 
-* **Dhakshitha S** 
+* **Dhakshitha S**
 
 ---
 
